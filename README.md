@@ -1,4 +1,4 @@
-# 🇹🇷 Türkiye'deki Akademik Gelişim: Üniversiteler, Yıllar ve Disiplinler Üzerinden Bir Görünüm (1959–2024)
+# Türkiye'deki Akademik Gelişim: Üniversiteler, Yıllar ve Disiplinler Üzerinden Bir Görünüm (1959–2024)
 
 >## ❗️ Uyarı
 >
